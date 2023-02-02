@@ -1,4 +1,3 @@
-<!-- templates/index.html -->
 <h1 style="color: #fff;">Witaj na mojej stronie ze ściągami</h1>
 <p style="color: #fff;">Kliknij Login żeby zostać przeniesionym do panelu logowania.</p>
 <p><a href="{{ url_for('login') }}" style="color: #fff;">Login</a></p>

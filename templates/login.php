@@ -1,5 +1,3 @@
-<!-- templates/index.html -->
-
 <h1 style="color: #fff;">Witaj w panelu logowania</h1>
 <p style="color: #fff;">Zaloguj się by mieć dostęp do ściąg.</p>
 
@@ -9,8 +7,6 @@ body {
   color: #fff;
 }
 </style>
-
-<!-- templates/login.html -->
 
 {% if error %}
 <p style="color: red;">{{ error }}</p>
