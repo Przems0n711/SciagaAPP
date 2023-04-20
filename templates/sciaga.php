@@ -9,341 +9,207 @@
 <body>
     
 <h6>
-Polska w wieku XVII.
-Polska w 17 wieku początek końca RP
-Dualizm gospodarczy Europy
+Oświecenie.
+- Racjonalizm - wykorzystywanie rozumu
 
-Wzrost Brandenburgii- władza w Prusach od 1618
+- Filozofia
+- Rozwój człowieka = edukacja, społeczeństwo się rozwija dzięki nauce
+- Tolerancja wolność dla wszystkich
+- język uczonych - francuskich
 
-Walki o Inflanty w 16 wieku 1576 Batory a Maksymilian Habsburg, podwójna elekcja
+- Jan- Jacques Rousseau
+- "umowa społeczna " - równość społeczeństwa, republika . Złamanie umowy społeczne prowadzi do odebrania wiedzy przez lud
+- Ludzie oczekują bezpieczeństwa , jeśli umowa nie jest przestrzegana możemy władcę oddalić
+- Człowiek z natury dobry , dobry, jego zepsucie z rozwoju cywilizacji
+- Wychowanie dzieci w zgodzie z naturą - rola uczuć i społeczności - dzieciństwo jako podstawa kształtowania człowieka
 
-Zygmunt III Waza - pochodził ze Szwecji
-1587 - podwójna elekcja
-1592 Waza zrobił Warszawę stolicą
+- koncepcja trój podziału władzy Nie mogą być zależne od siebie
+- ustawodawcza
+- sejm i senat = parlament
+- wykonawcza
+- rząd król, prezydent
+- sądownicza
+- monteskiusz
 
-Pospolite ruszenie - zbieranie szlachty do wojska
+- Krytyka kościoła
+- Walter, Diderot - nakłanianie władców do zmiany rządów
+- Deiści ( Bóg - zegarmistrz ) vs ateiści
 
-Kozacy rejestrowi były jako żołnierze w wosku polskim
+- Masoneria / wolnomularstwo
+- arystokracja
+- wolne myślenie
 
-Jazda tatarska pomagała w walkach
-1602 - dowództwo Jana Karola Chodkiewicza w bitwach i Inflanty
-1605 - Inflanty zostają polskie - Szwecja przegrana
-1606 - 1607 - Rokosz Zebrzydowskiego(bunt szlachty przeciwko króla) - ponieważ próbuje wprowadzić absolutyzm
-Król rezygnuje z reform i ogłasza amnestię
-1600 - Szwedzi wkraczają do Inflant.
-1601 - Wojska szwedzkie dochodzą do rzeki Dźwiny. W bitwie pod Kockenhauzen hetmani litewscy, Krzysztof Radziwiłł i Jan Karol Chodkiewicz, zwyciężają szwedzkie oddziały. Dowodzący zaciężnym wojskiem Jan Zamojski zmusza Szwedów do odstąpienia od oblężenia Rygi.
-1602 - Dowództwo nad wojskiem walczącym ze Szwedami obejmuje Jan Karol Chodkiewicz.
-1603 - Chodkiewicz zdobywa Dorpat.
-1604 - Znakomite zwycięstwo odniesione przez Chodkiewicza pod Białym Kamieniem.
-1605 - Król Szwecji Karol IX poprowadził 14-tysięczną armię na Rygę. Z odsieczą pospieszyło 4-tysięczne wojsko
-Chodkiewicza, które odniosło świetne zwycięstwo nad trzykrotnie liczniejszym przeciwnikiem w bitwie pod Kircholmem
-1611 - Zawarcie rozejmu w walkach między Rzeczpospolitą a Szwecją
-1617 - Zerwanie rozejmu przez Szwecję, której wojska w ciągu następnych lat zdobywają Parnawę, Rygę i Mitawę. Tę ostatnią odzyskał wkrótce hetman Krzysztof Radziwiłł.
-1622 - Podpisanie kolejnego układu o rozejmie
-1625 - Król szwedzki, słynny wojownik Gustaw Adolf, zdobywa Dorpat
-1626 - Wojska szwedzkie atakują Prusy Królewskie. Gustaw Adolf zdobywa Piławę, Braniewo, Elbląg, Tczew, Oliwę, Puck i rozpoczyna blokadę niemożliwego na razie do zdobycia Gdańska. Odbywa się nierozstrzygnięta bitwa pod Gniewem
-1627- Bitwa pod Czarnem i odzyskanie Pucka przez hetmana Stanisława Koniecpolskiego.
-Polska flota zwycięża szwedzkie okręty w bitwie morskiej pod Oliwą.
-1628 - Bitwa pod Tczewem. Utrata na rzecz Szwedów Brodnicy.
-1629 - Przegrana wojsk polskich w bitwie pod Górznem. Sukces Polaków w bitwie pod Trzcianą, gdzie ranny zostaje król szwedzki Gustaw Adolf.
-1629 - Podpisanie rozejmu między walczącymi stronami w Starym Targu. Szwedzi zatrzymali większą część Inflant oraz porty pruskie z wyjątkiem Gdańska, Królewca i Pucka. Uzyskali też prawo do pobierania znacznej części ceł z handlu gdańskiego.
-Po co ludziom były infant ?
-jesteś wstanie handlować na większą skale
+- W oświeceniu XVII w. sztuka i architektura klasycyzm odwołanie do antyku
+- Partenon w Atenach
+- brama brandenburska - klasycyzm
 
-Wojna ze Szwecją
-1621 - Szwecja znowu atakuję Polskę
-1622 - Szwecja wygrywa i zajmuję Inflanty przesunięcie wojny do Prus Królewskich (na pomorzu Gdańskim) eksport zboża z Polski maleje
-Wojny z Turcją
-Turcja Osmańska
-wzajemny handel
-unikamy wojny
-Wojna z Turcją
+Absolutyzm oświecony
 
-Przyczyny:
-Pl angażuję się w Mołdawii , najazdy kozackie
-Lisowczycy walczą po stronie Habsburgów w Siedmiogrodzie
-Angaż w wojnę trzydziestoletnią
-"państwo to ja"
-1620 - polska interwencja w Mołdawii !!
-zabili Hetmana idą z Mołdawii centralnie na PL
-1621 - wyprawa turecka na PL
-- obrona Chocimia
-- śmierć Chodkiewicza
-- podpisanie pokoju
-Barok koniec XVI - pół XVIII w. w Polsce
-Renesans późny (manieryzm) - 1525 - 1590
-Szukanie odskoczni od kanonu renesansowego
-Okres jedynie w sztuce (malarstwo, rzeźba, muzyka, literatura)
-12.09.1683 - odsiecz wiedeńska
-1669 - pokój w Karłowicach Polacy otrzymali Ukrainne.
-El Greco 1541-1614
-wprowadza niepokój
-użycie ciemniejszych barw
-Ruch, dynamika, kontrast
-Wpływ na malarstwo barokowe
+Piotr I
+Fryderyk II
+Fryderyk Wilhelm I
+Maria Teresa
+Józef II
+Absolutyzm oświecony:
+szkoły
+tolerancja
+wojsko
+Prusy → Hohenzollernowie
+Rosja → Romanowie
+Austria → Habsburgowie
+Senat Rządzący
+Kolegia
+Podporządkowanie kościoła
+Szkolnictwo
+Wojna północna 1700 - 1721
+Tabela rang - awans za zasługi
+1712 - Petersburg
+1721 - Powstanie Cesarstwo Rosyjskie
+Caryca Katarzyna II
+1721 PIW Rządy córek Anny i Elżbiety
+Elżbietka na następcę wskazuje Piotra III
+1762 - Elżbieta dead; wojsko morduje PIII
+Wdowa po PIII - Katarzyna Wielka
+System kar - zesłanie na Syberię do kopalń i wyrębu lasów
+1774 - pokonanie Turcji, Krym rosyjski
+1783 - zdobycie Gruzji
+Pokasowanie klasztorów
+Osiedlanie się Hugenotów
+Fryderyk Wilhelm I
+Obowiązek szkolny i służby, ławki
+Dyscyplina pruska - bać się kaprala
+Urzędnicy z mieszczaństwa i junkrów
+Armia najważniejsza
+Przyjęcie małpy do Pruskiej Akademii Nauk
+Fryderyk II Wielki
+Zdobywa nowe ziemie, w przeciwieństwie do ojca
+Rozwój armii z 80 do 200 tys.
+Rozwój manufaktur, ministerstw, zniesiono tortury
+Zamiłowanie do nauki i sztuki, narzuca reformy oświeceniowe
+Maria Teresa
+Nieuznanie przez Europę → wojny śląskie (1740 - 1742; 1744-1745)
+Austria traci Śląsk dla Prus
+Reformy:
+ograniczenie uprawnień szlachty i duchowieństwa
+Rada Państwa
+rozwój armii, merkantylizm
+Wojna północna 1700 - 1721
+Strony: Szwecja, Turcja vs Rosja, Dania, Saksonia, Polska, Prusy, Hanower
+1700 - powstanie Ligi Północnej przeciwko Szwecji
+Stanisław Leszczyński
 
-Barok
-Geneza omówiona w poprzednim dziale
-Kontrreformacja zwalczanie protestantyzmu
-Wyjątkowość polskiego baroku: połączenie Wschodu i Zachodu
-Zygmunt Waza = Król
-Mecenat królewski i kościelny
-Rozwój 1 połowa XVII w. - mniej wojen
 
-Barok kościelny
-Architektura
-Wojny w pół XVII w. - zaniechanie mecenatu
+Rządy Wettinów
+August II Mocny
+1697 - elekcja
+1697 - koronacja Augusta II; unia personalna
+Mocny - teorie przydomku; 300 dzieci i Piotr Wielki
+1699 - pokój w Karłowicach
 
-Architektura
-rzeźby we wnękach
-dynamizm
-zdobienia
-grzymsy
-emitancje kolumn = pilastry
-fundacja kościołów
+1699 - układ z Rosją vs. Szwecja 1700 - atak Saksonii, Danii, Rosji na Szwecję → początek wojny północnej
+1702 - Kliszów, Szwecja zajmuje PL
+1704 - konfederacja warszawska detronizuje Sasa;
+wkrótce wybór Lasa
+Konfederacja sandomierska - zwolennicy Sasa
+1721 - PL. Przegrana; wzrost nietolerancji (Szwedzi - protestanci)
+August III Sas 1733 - elekcja Leszczyńskiego; sprzeciw Austrii i Rosji
+liberum veto - jedynie sejm pacyfikacyjny nie został zerwany
+Zerwano 13 / 14 sejmów (w czym 4 przed wyborem marszałka)
+Sejmiki nie zwoływane
+Walki frakcji magnackich: Familia vs. Republikanci
+Klęska w II wojnie śląskiej - Saks. Płaci kontrybucje Prusom
+Znikoma rola w wojnie siedmioletniej
+Czasy saskie to okres w historii Polski, w którym na tronie panowała dynastia Wettynów pochodzenia saskiego.
+Ten okres przypada na XVIII wiek, a konkretnie na lata 1697-1763, gdy na tronie panowali August II Mocny (1697-1733) oraz jego syn August III Sas (1733-1763).
+Panowanie dynastii saskiej w Polsce nazywane jest czasami okresem "saskim", a okres ten charakteryzował się wieloma wydarzeniami, takimi jak:
 
-Kalwarie Zebrzydowska
-droga krzyżowa
-wielkie założenia architektury
-ścieżki na dworze
+Integracja polityczna Polski i Saksonii poprzez elekcję Augusta II Mocnego na króla Polski w 1697 roku
+Konflikt z Rosją o sukcesję w Polsce, który rozegrał się w 1700 roku i doprowadził do wojny północnej
+Reformy ustrojowe, w tym tworzenie urzędów centralnych oraz próby reformy systemu podatkowego i monetarnego
+Inwestycje w rozwój przemysłu, w tym w przędzalnie i tkalnie, a także w rozwój infrastruktury, takiej jak budowa kanałów żeglownych
+Kulturowe i artystyczne osiągnięcia, w tym rozwój sztuki barokowej oraz budowa wielu pałaców i zamków, takich jak pałac w Wilanowie czy zamek w Kórniku.
+Jednocześnie, okres saski charakteryzował się także słabością polityczną Rzeczypospolitej oraz problemami społecznymi,
+takimi jak korupcja i nepotyzm w rządach, wzrost ubóstwa i bezrobocia, a także konflikty między różnymi frakcjami politycznymi, zwłaszcza między magnaterią.
+Oświecenie w Polsce.
+- Dotarcie z AIIIS
+- Dotarcie innowierców, magnatów
+- Dynastia saska
+- Anarchia w państwie
+- Spokój po 1736 - Stanisław Konarski "O skutecznym rad sposobie
+- zniesienie liberum veto i instrukcji sejmikowych, odebranie praw politycznych gołocie
+- Stanisław Konarski "Collegium Nobilium"
+- W 1740 r. Konarski otworzył w Warszawie Collegium Nobilium - prowadzoną przez pijarów szkołę dla chłopców z najbogatszych domów szlacheckich
+- 1747 - biblioteka
+- 1748 - Opera
+- Stanisław August Poniatowski
+- Mecenat SAP; oświecenie stanisławowskie
+- 1771 - 1782 - obiady czwartkowe
+- Kultura
+- Wojciech Bogusławski - założyciej Teatru Narodowego
+- 1779 - budowa na pl. Kraisńskich (dziś IPN) - 1833 przeniesienie na pl. teatralny
 
-Architekta świecka
-Główne dwory
-mini wersal - Wilanów
-Kolumna Zygmunta
+- Edukacja
+- 1765 - szkoła rycerska
+- 1773 - KEN
+- Cel: nowi ośwceniowi obywatele
+- Nauka w szkole po polski a nie łacinie
+- Adam Kazimierz Czartoryski, Ignacy Potocki, Hugo Kołłątaj
 
-Rzeźba
-Kolumna Zygmunta - pamięci o ojcu
-Oburzenie legata papieskiego
-Rzeźba funeralna: rzeźba nagrobkowa
+- Towarzystwo do Ksiąg elementarnych
+- programy nauczania
+- podręczniki
+- powstaje szkoła oficerska
 
-Malarstwo
-Portrety
-martwa matura
-ciemne kolory
+- Nauka
+- Stanisław Staszic - geologia
+- Literatura
+- Ignacy Krasicki - bajki
+- Adam Naruszewicz - poeta przekłada z łaciny "Historia narodu polskiego"
 
-Literatura
-Główny podział: przed i po potopie
-przed jest fajnie po jest po
-po potopie jest mniej druku = Jan Andrzej Morsztyn tłumaczenie "cyd" na polski
-więcej rękopisów
-przed potopem tłumaczenie prac na nasz język = Daniel Naborowski wiersze
-makaronizmy = wtrynianie bezsensowne słów obcych
-Pamiętnikarstwo
-Moda na silva rerum - pamiętniczki jak małych dziewczynek w podstawówce
-Jan Chryzostom Pasek
+- Architektura
+- Oświecenie = Klasycyzm
+- Dominik Merlini
+- Przebudowa Zamku Królewskiego
+- Łazienki Królewskie
+- Girlandy
+- Pałac Królikarnia
+- Malarstwo
+- Marcello Baciareli
+- portrety, sceny historyczne
+- Bernardo Belotto "Canaletto"
+- weduty
+- jan Piotr Norblin
+- SCENY HISTORYCZNE I WSPÓŁCZESNE
+- Ulica numer jeden = ulica miodowa żółty budynek Collegium Nobilium szkoła muzyczna
+Przemianyprzemysłowe i gospodarcze w XVIII w.
+W osiemnastym wieku miały miejsce znaczące przemiany gospodarcze i społeczne, zwane rewolucją przemysłową.
+W Europie rozwijające się nowe technologie, takie jak mechaniczne przędzarki i tkackie maszyny, pozwoliły na produkcję większych ilości tańszych towarów.
+Powstały fabryki i rozwinął się przemysł tekstylny oraz metalowy. Rozwój gospodarczy wpłynął również na wzrost miast i urbanizację.
+Przemiany te przyczyniły się do powstania nowych klas społecznych, takich jak klasa robotnicza i klasa średnia.
+Wzrosła liczba ludzi pracujących w fabrykach, a ciężkie warunki pracy i niskie płace skłoniły wielu do oporu i organizowania się w związki zawodowe.
+W miastach powstały slumsy, a bieda i choroby stały się powszechne wśród pracowników.
 
-Nauka
-wyrzucenie arian
-Brak większej działalności naukowej na uniwersytetach
-Rekatolizacja PL - w kolegiach powracają do tekstów średniowiecznych
-brak konkurencji w szkołach protestanckich
-Bieda: brak studentów za granicą , uniwerki znowu średniowieczne
+Wraz z rozwojem przemysłu nastąpił także wzrost zapotrzebowania na surowce i towary z całego świata.
+Rozwinęła się handlowa flota morska i pojawiły się kolonie, co zaowocowało kolonializmem i ekspansją europejską.
 
-Sarmatyzm
-XVI - Miechowita = traktat o dwóch sarmacjach
-żupan nakładane pod spód
-Kontusz nakładane na wierzch
-szabla
-pas
-Poglądy
-patrioci
-potrzeba obrony ojczyzny
-nigdy nie stanęli w obronie było to tylko na pokaz
-stwierdzenie że są debilami i stwierdzenie że to dobrze bo debil jest najlepszy dla państwa polskiego
-5%
-Kuligo
-gość w dom Bóg w dom jechanie sankami do sąsiada
-idą razem do 3 po obaleniu piwniczki
-zajazd - wparowywali na chatę i przejmowali majątek sąsiada
-ksenofobia 1658 - wypędzenie arian
-idea portretów trumiennych
-Wojny Polski z Rosją
-Kryzys w Rosji
-1584 - śmierć Iwana Groźnego
-1584 - tron obejmuje trzeci syn - Fiodor
-Polska podbiła Rosje
-Fiodor nieudolny , zajmuję się głównie religią
-Realna władza Borysa Godunowa 9doradca Iwana Groźnego
-1598 - Fiodor umiera, władzę przejmuje Borys
-Zesłanie Dymitra (najmłodszy syn) do Uglicza , śmierć podczas piłki upadł na nóż = zrobiono go świętym cerkwi
-1588 - Fiodor umiera koniec dyn. Rurykowiczów
-władza Godunowa
-Wielka smuta 1598 - 1613 = Polska seryjne najeżdża państwo Rosyjskie i je podbija
-Dymitr Samozwaniec
-1602 - Jerzy Mniszek popiera Samozwańca
-Ślub z Maryną, w zamian Mniszech otrzyma dobra w Rosji
-Dymitr przechodzi na katolicyzm i obejmuj ę unię cerkwi z katolikiem = poparcie króla i jezuitów
+Rewolucja przemysłowa miała ogromny wpływ na przemiany społeczne i gospodarcze w osiemnastym wieku i przyczyniła się do kształtowania nowoczesnego świata.
+August Poniatowski
+August Poniatowski (1732-1798) został wybrany na króla Polski w 1764 roku.
+Był on ostatnim królem Polski przed upadkiem Rzeczypospolitej i rozbiorami, które nastąpiły w kolejnych latach.
 
-Dymitriady
-1604 - Dymitr rusza do Rosji, poparcie w Rosji rośnie
-Naturalna Śmierć Godunowa
-1605 - koronacja Dymitra na cara
-1606 - ślub z Maryną
-1607 - do PL przybywa DIIS
-Poparcie PL - wojna jako łupy
-Wyprawa na Rosję brak zajęcia Moskwy
-Do Rosji wkraczają lisowczycy
-1608 - 1610 - dwuwładza w Rosji
-DIIS w Tuszczynnie Szujki w Moskwie
+Początki panowania Augusta Poniatowskiego były trudne i skomplikowane.
+W momencie objęcia tronu przez Augusta Rzeczpospolita była już w kryzysie, a rządy jego poprzednika, Stanisława Augusta Poniatowskiego, nie przyniosły poprawy sytuacji kraju.
+August Poniatowski próbował wprowadzać reformy, mające na celu unowocześnienie kraju i naprawę jego gospodarki i polityki. Jego zasługami były m.in.:
+Wprowadzenie reformy menniczej, która miała na celu ujednolicenie i ułatwienie wymiany pieniędzy w kraju
+Wprowadzenie reformy edukacyjnej, która miała na celu poprawę poziomu edukacji w kraju oraz promowanie kultury i sztuki
+Wprowadzenie reformy wojskowej, która miała na celu unowocześnienie i zwiększenie skuteczności armii polskiej
+Niestety, plany reform Augusta Poniatowskiego spotkały się z oporem magnaterii, która nie chciała utracić swoich przywilejów i wpływów na politykę kraju.
+Wielu polityków opowiadało się także za rozwiązaniem Rzeczypospolitej i przekazaniem władzy Rosji lub innym państwom.
 
-Wojna z Moskwą
-1609 - atak Stanisława Żołkiewskiego na Smoleński zdobyty w 1611 !!
-Kozacy
-Powstawanie Chmielnickiego 1648
-Dogadali się z Tatarami
-Tatarzy i Kozacy atakują razem Polskę
-Przeciwnika nigdy nie można lekceważyć
-IV 1648 - Żółte Wody (klęska PL)
-Klęska husarii
-Dołączenie rejestrowych Kozaków do Chmielnickiego (przeciw PL)
-V 1648 - Korsuń (Klęska PL)
-Mikołaj Potocki w niewoli
-+ WIVW
-bez Królewie
-Wojewoda ruski Jeremi Wiśniowiecki ( Kniaź Jarema ) walczy z Kozakami
-- nabijał na pal zakładników Kozaków śmierć trwa 2 / 3 dni
-Powstanie ludowe
-dołączenie ludu ruskiego
-Okrucieństwo obu stron
-Jan Kazimierz Waza toczy nieudane rokowania ; PL uznaje BCH hetmanem zaporoskim
-BCH: wyzwolić Ruś od PL
-Zbaraż; Skrzetuski
-- 10 tys. PL chowa się , mówi że Waza pomoże
-BCH - zostaje sam - podpisuje ugody Zborowskiej
-BCH hetmanem - zwiększenie rejestru do 40 tys.
-Senat dołączają prawosławni biskupi
-1651 - ponownie powstanie
-Beresteczko (Pl górą)
-1652
-BCH stara się osadzić syna na tronie mołdawskim
-Potop szwedzki
-Przyczyny
-1648 - Jan Kaźmierz Waza na tronie
-- Próby absolutyzmu, rozdanie urzędów
-Opozycja: Lubomirscy, Radziwiłłowie !
-przyczyna = Szwecja po 1648 hegemonem na Bałtyku po wojnie `30
-1654 - Moskwa atakuję PL
-1654 - na tronie Karol X Gustaw
-Szwecja potrzeba wojny dla łupów (kryzys gospodarczy)
-PL 35% produktów w handlu Bałtyckim - eksport PL
-PL ma Prusy
-Pretensje Wazów do korony szwedzkiej
-Przybycie Hieronima Radziejowskiego - Szwecja wie, że król
-PL ma kłopot z magnatami
-Pretekst: Jan Kaźmierz Waza używa tytułów władcy
-VII 1655 - 40 tys. Szwedów atakuję PL
-Ujście - Pospolite ruszenie poddaje się bez walki
-Ugoda ze Szwedami bo w sumie Szwedzi są fajni i chcą znieść złego Króla Wazę
-Kiejdany - Janusz Radziwiłł oddaje Litwę pod protektorat Szwecji
-Król ucieka na Śląsk
-Brak dowódców - Batoh
-Potop Szwedzki jak z Biblii
-Niszczenie kraju przez Szwedów
-"Wojna musi utrzymać się sama"
-Gwałty, rabunki, kontrybucje
-Niszczenie kościołów vs sarmaci
-
-18.11-27.12 1655 - obrona Jasnej Góry
-Augustyn Kordecki; kolumbryna
-3200 Szwedów vs 300 PL = "broniło się tylko 300 PL"
-XII 1655 - konfederacja w Tyszowcach
-Szlachta wzywa do walki
-Oddziały partyzanckie (górale, kurpie)
-
-Szwed protestant
-Matka Boska obroniła Polaków przed Szwedami protestantami
-
-1655-1656 - JWK wraca do PL
-Stefan Czarnecka; wojna podjazdowa
-- IV 1656 - śluby Iwowskie
-Maryja Królową PL; zapowiedź wypędzania arian (przyczyna rozbiorów)
-
-Śluby lwowskie Jana Kazimierza z 1656 , obraz Jana Matejki
-1656 - Warka
-Chwilowe odbicie Warszawy, grabież miasta
-Architektura w Sztokholmie
-Koniec 1656 - układ PL - Moskiewski ( traktat wileński)
-Wspólna walka przeciw Szwecji
-
-XII 1656 - traktat w Radnot (rozbiór PL)
-Szwecja , Brandenburgia, Kozacy, Siedmiogród , Radziwiłł (Litwa)
-- Siedmiogród i Litwa odpada
-Angaż Siedmiogrodu - Habsburgowie pomagają PL
-Dania po stronie PL
-Wycofanie większości Szwedów z PL do Dani
-PL rozbijają Siedmiogród
-Śmierć BCH
-1657 - układy welawsko-bydgoskie
-- zrzeknięcie się Prus jako lenna
-
-Pokój w Oliwie 1660
-PL zrzeka się Inflant ( od 1628 jest tam Szwecja)
-Wyłączenie do pokoju traktatów welawsko-bydgoskie
-Nad wykonanie czuwa LXIV
-Skutek Potopu: największa tragedia PL
-1658 - sejm podejmuję decyzję o wygnanie arian
-Emigracja wykształconych m . in do Prus
-Polska po Potopie
-Skutki potopu
-Pauperyzacja szlachty - zależność od magnatów
-Zaściankowa kultura polityczna, klientelizm
-Brak realnej władzy króla
-Wzrost nietolerancji religijnej
-Fiasko prób elekcji vivente rege wprowadzanych przez JKW
-Konflikt króla z magnatami - sejmy kończą się barakiem uchwała
-1652 - Władysław Siciński, liberum veto
-Próby reform JKW
-podejmowanie decyzji 2/3 głosów
-liberum veto tylko przy wyraźnym naruszeniu prawa
-RP Trojga Narodów
-Nowe podatki: akcyza, czopowe( od alko), clo generalnie)
-Elekcja vivente rege
-Polityka profrancuska Oliwa 1660
-Sprzeciw szlachty jako absolutyzmowi JKW
-Złota wolność odparła Szwedów
-Rokosz Jerzego Lubomirskiego 1665-1666
-Przeciw vivente rege
-Do rokoszan przystępuje ponad połowa wojsk koronnych (Segm 21661 nie wypłacił im zaległych 24 mln złotych)
-1662 -na sejmie JKW uchwala zakaz vivente rege, ab me wybuchła wojna domowa
-Sejm 1664-zarzut zdrady stanu dla Lubomirskiego Wyrok: infamia; ucieczka Lubomirskiego Poparcie szlachty dla magnata
-1665-L wraca do PL, wsparcie Habsburgów Rokosz, wsparcie szlachty
-1666-Matwy, wygrana rokoszan
-Mord jeńców
-Król przyrzeka amnestię i żołd rokoszanom, wyrzeczenie
-vivente rege
-Lubomirski korzy się przed władcą
-
-Abdykacja JKW 1668
-Wolna elekcja 1669
-Filip Wilhelm (Rzesza, poparcie Francji)
-Karol Lotaryński ( poparcie Habsburgów)
-Car Aleksy/ syn Fiord
-Fryderyk Wilhelm (Niemcy)
-Michał Wiśniowiecki (Jarema)
-V 1669 - 'Piast' wybrany
-Michał Korybut Wiśniowiecki 1669-1673
-Opozycja szlachty próbuje doprowadzić do abdykacji
-Najbardziej aktywni malkontenci
-Wojna z Turcją
-Na wschodzie walka PL z Kozakami ( hetman Piotr Doroszenko)
-Doroszenko: przeciw 1667 Andruszków ; walka o stworzenie państwa ruskiego
-Wsparcie Tatarów, walki Sobieskiego
-1672 - wyprawa Turcji, Tatarów, Doroszenki
-Upadek Kamieńca Podolskiego
-1672 - traktat w Buczaczu
-większa części Ukrainy do Turcji (tracimy zboże główne źródło dochodu)
-Król płaci haracz sułtanowi
-w kraju: walka między malkontentami a regalistami
-Konfederacje: Gołąb (regaliści) Szczebrzeszyn ( malkontenci )
-Groźba wojny domowej, niechęć do Buczacza połączenie wszystkich
-1673 - sejm uchwala podatki na wojnę
-40 tys. wojska idzie na wschód ( dworski Sobieski)
-Marsz Sobieskiego na Mołdawie
-10.11.1673 śmierć MKW
-11.11.1673 - zwycięstwo PL pod Chocimiem
-Wiosna 1674 - elekcja wygrywa Jan III Sobieski
-Maria Kazimiera - poparcie LXIV dla Sobieskiego
+August Poniatowski nie zdołał powstrzymać procesu upadku Rzeczypospolitej.
+Jego plan na panowanie krajem polegał na wprowadzeniu reform, które miały poprawić sytuację polityczną, gospodarczą i społeczną kraju.
+Niestety, jego rządy były zdominowane przez konflikty i brak poparcia ze strony magnaterii i innych grup politycznych. W końcu, w 1795 roku,
+Rzeczpospolita została podzielona między Rosję, Prusy i Austrię w wyniku trzeciego rozbioru, co zakończyło istnienie kraju jako niepodległego państwa.
 </h6>
 
 <style>
